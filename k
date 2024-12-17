@@ -1,8 +1,6 @@
 📡  直播,#genre#
 花花公子,http://demoniaus.cbilant.com/iptv/GCETXETVEM37A6/527/index.m3u8
 花花公子,http://rhsbjv7k.tvclub.xyz/iptv/QUSEF3A55UE6BF/527/index.m3u8
-驚艷臺,http://125.227.210.55:8156/VideoInput/play.ts
-香蕉臺,http://125.227.210.55:8159/VideoInput/play.ts
 电影XXX,http://21686ab6.cbilant.com/iptv/8N5VWM4FS7X7HP/11052/index.m3u8 
 电影XXX,http://rhsbjv7k.tvclub.xyz/iptv/QUSEF3A55UE6BF/11052/index.m3u8
 电影18+,http://21686ab6.cbilant.com/iptv/8N5VWM4FS7X7HP/18075/index.m3u8 
