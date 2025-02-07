@@ -1452,7 +1452,7 @@ FC2PPV-1271635 【生ドル?未修正】矢〇亜希子激似が声を我慢し�
 
 
 
-📡  国产视频1,#genre#
+📡麻豆视频1,#genre#
 麻豆傳媒0.1,https://video2.51daao.com/btt1/2021/04/20210421/vTcVOAWe/index.m3u8
 麻豆傳媒0.2,https://video2.51daao.com/btt1/2021/04/20210421/uerOlDXv/index.m3u8
 麻豆傳媒0.3,https://video2.51daao.com/btt1/2021/04/20210421/Q6vpCHnh/index.m3u8
@@ -1550,7 +1550,7 @@ FC2PPV-1271635 【生ドル?未修正】矢〇亜希子激似が声を我慢し�
 麻豆傳媒83,https://video2.51daao.com/btt1/2021/03/20210317/h9c3WuCM/index.m3u8
 麻豆傳媒84,https://video2.51daao.com/btt1/2021/03/20210317/pgq05qz0/index.m3u8
 
-📡  国产视频2,#genre#
+📡  果凍视频2,#genre#
 果凍傳媒01,https://video2.51daao.com/btt1/2021/03/20210315/nqgw0eJK/index.m3u8
 果凍傳媒02,https://video2.51daao.com/btt1/2021/03/20210309/rwTpu16k/index.m3u8
 果凍傳媒03,https://video2.51daao.com/btt1/2021/03/20210309/WQ1u7YIC/index.m3u8
@@ -1753,7 +1753,7 @@ SWAG騷女友被你落在這了,https://video2.51daao.com/btt1/2020/12/20201205/
 鬼父下卷,https://video2.51daao.com/btt1/2021/08/20210813/j2JitqzA/index.m3u8
 737奏音花音,https://video2.51daao.com/btt1/2021/10/20211019/wO9PIxFb/2000kb/hls/index.m3u8
 JUY-385大岛优香,https://video2.51daao.com/btt1/2021/10/20211017/V7WwMk16/2000kb/hls/index.m3u8
-📡  国产视频3,#genre#
+📡  福利视频3,#genre#
 福利0,https://10j99.cdnedge.live/file/avple-images/hls/61703f29bc5c965ae4f56248/playlist.m3u8
 福利1,https://10j99.cdnedge.live/file/avple-images/hls/6171a981f8003d17dfd1a739/playlist.m3u8
 福利2,https://10j99.cdnedge.live/file/avple-images/hls/6173094d16713849c8fc4704/playlist.m3u8
@@ -1906,7 +1906,7 @@ JUY-385大岛优香,https://video2.51daao.com/btt1/2021/10/20211017/V7WwMk16/200
 福利148,https://10j99.cdnedge.live/file/avple-images/hls/621e16860b43873ee3783bed/playlist.m3u8
 福利150,https://10j99.cdnedge.live/file/avple-images/hls/628f8239531f007e5ba30afb/playlist.m3u8
 
-📡  国产视频4,#genre#
+📡  传媒视频4,#genre#
 1传媒01,https://e2fa61.cdnedge.live/file/avple-asserts/hls/63ad7a5b4039e62f06b5ac1e/playlist.m3u8
 2传媒02,https://u89ey1.cdnedge.live/file/avple-asserts/hls/63a66db9fc0f5909431eee4c/playlist.m3u8
 3传媒03,https://u89ey1.cdnedge.live/file/avple-asserts/hls/63a4943b32a6b7426142f891/playlist.m3u8
@@ -2514,7 +2514,7 @@ l12传媒01,https://10j991.cdnedge.live/file/avple-asserts/hls/639985bd2c279c7a7
 国产10传媒02,https://10j991.cdnedge.live/file/avple-asserts/hls/634be23a5c062344b76024bb/playlist.m3u8
 国产10传媒03,https://u89ey1.cdnedge.live/file/avple-asserts/hls/634bd6fa5c062344b76024ba/playlist.m3u8
 
-📡  国产视频5,#genre#
+📡  传媒视频5,#genre#
 9传媒05,https://1xp60.cdnedge.live/file/avple-images/hls/6334472c40dd715faa4977d7/playlist.m3u8
 9传媒01,https://w9n76.cdnedge.live/file/avple-images/hls/6332e17e8c53ef345f14e772/playlist.m3u8
 9传媒02,https://8bb88.cdnedge.live/file/avple-images/hls/6332e1f68c53ef345f14e773/playlist.m3u8
@@ -4174,6 +4174,68 @@ W雙姦姊妹,https://vip2.slbfsl.com/20230323/3NvBd8hx/index.m3u8
 脳汁ドバドバ！ドーパミン大量分泌！！ イケテナイ地味おじさんに全身ベロベロされても痙攣！！ 何をされてもビクビクしまくりSEX中毒人妻「おねがいヤリマン女って言わないで」14人の清楚妻調教BEST4時,https://vip2.slbfsl.com/20230421/GcxyTfhd/index.m3u8
 悶え喘ぐご近所ドエロ人妻,https://vip2.slbfsl.com/20230421/fChYIge0/index.m3u8
 敏感に感じる体の美人妻がひくひくと痙攣する姿をお楽しみください。,https://vip2.slbfsl.com/20230421/cs2CCEQN/index.m3u8
+悲剧女主播,https://videomy.yongaomy.com:8091/20191223/TOz9KzyG/1500kb/hls/index.m3u8
+大觉醒伊贺,https://videomy.yongaomy.com:8091/20200126/SSNI-681/1500kb/hls/index.m3u8
+风俗女郎都咲乃,https://videomy.yongaomy.com:8091/20191223/jYalymoY/1500kb/hls/index.m3u8
+汗水少女,https://videomy.yongaomy.com:8091/20191219/WJQJUXjc/1500kb/hls/index.m3u8
+姫川,https://videomy.yongaomy.com:8091/20200102/IeVDOH6i/1500kb/hls/index.m3u8
+吉岗,https://videomy.yongaomy.com:8091/20191223/4ZcJ3aPo/1500kb/hls/index.m3u8
+教育,https://videomy.yongaomy.com:8091/20191226/OuJg40gL/1500kb/hls/index.m3u8
+姐姐的诱惑,https://videomy.yongaomy.com:8091/20191226/ezCT3OZC/1500kb/hls/index.m3u8
+九重环奈1,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/MIDE-493/1500kb/hls/index.m3u8
+九重环奈2,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/MIDE-391/1500kb/hls/index.m3u8
+九重环奈3,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/mide-422/1500kb/hls/index.m3u8
+九重环奈4,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/MIDE-503/1500kb/hls/index.m3u8
+九重环奈5,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/mide-525/1500kb/hls/index.m3u8
+九重环奈6,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/MIDE-513/1500kb/hls/index.m3u8
+九重环奈7,https://video1.rhsj520.com:8091/nyrm3/nvyou/0510/MIDE-535/1500kb/hls/index.m3u8
+疗愈大叔,https://videomy.yongaomy.com:8091/20191227/jPKXM7bL/1500kb/hls/index.m3u8
+妹妹,https://videomy.yongaomy.com:8091/20200126/SW-587/1500kb/hls/index.m3u8
+内衣模特-新名,https://videomy.yongaomy.com:8091/20191223/1HZ8kCxt/1500kb/hls/index.m3u8
+情人节希岛,https://videomy.yongaomy.com/xiezhen/LD-011/1500kb/hls/index.m3u8
+去学校,https://videomy.yongaomy.com:8091/20200126/IPZ-949/1500kb/hls/index.m3u8
+全神贯注,https://videomy.yongaomy.com:8091/20200126/IPX-428/1500kb/hls/index.m3u8
+侍奉女仆,https://videomy.yongaomy.com:8091/20200126/MIDE-066/1500kb/hls/index.m3u8
+体液浓密-新名,https://videomy.yongaomy.com:8091/20200104/wtygLh5i/1500kb/hls/index.m3u8
+天海翼,https://videomy.yongaomy.com:8091/20200111/IPZ-615/1500kb/hls/index.m3u8
+天使萌1,https://video1.rhsj520.com:8091/nyrm3/snis/6/SNIS-210/1500kb/hls/index.m3u8
+天使萌2,https://video1.rhsj520.com:8091/nyrm3/snis/6/SNIS-230/1500kb/hls/index.m3u8
+天使萌3,https://video1.rhsj520.com:8091/nyrm3/snis/6/SNIS-249/1500kb/hls/index.m3u8
+天使萌4,https://video1.rhsj520.com:8091/nyrm3/snis/6/SNIS-270/1500kb/hls/index.m3u8
+天使萌5,https://video1.rhsj520.com:8091/nyrm3/snis/6/SNIS-929/1500kb/hls/index.m3u8
+天使萌6,https://video1.rhsj520.com:8091/nyrm3/snis/3/ssni-380/1500kb/hls/index.m3u8
+天使萌7,https://video1.rhsj520.com:8091/nyrm3/snis/6/SNIS-331/1500kb/hls/index.m3u8
+天使萌8,https://video1.rhsj520.com:8091/nyrm3/snis/1/ssni-358/1500kb/hls/index.m3u8
+天使萌9,https://videomy.yongaomy.com:8091/20200110/SNIS-270/1500kb/hls/index.m3u8
+天使萌10,https://videomy.yongaomy.com:8091/20200110/SNIS-463/1500kb/hls/index.m3u8
+天使萌11,https://videomy.yongaomy.com:8091/20200110/SNIS-311/1500kb/hls/index.m3u8
+天使萌12,https://videomy.yongaomy.com:8091/20200112/SNIS-440/1500kb/hls/index.m3u8
+西川1,https://videomy.yongaomy.com:8091/20200112/MIDE-124/1500kb/hls/index.m3u8
+相部屋,https://videomy.yongaomy.com:8091/20200126/SSNI-674/1500kb/hls/index.m3u8
+香皂小姐姐,https://videomy.yongaomy.com:8091/20191223/R6Tq7Ldb/1500kb/hls/index.m3u8
+绪方艾丽娜,https://videomy.yongaomy.com:8091/20200126/CHN-167/1500kb/hls/index.m3u8
+银河迹美,https://videomy.yongaomy.com:8091/20200126/MDTM-357/1500kb/hls/index.m3u8
+诱惑的姐姐1,https://videomy.yongaomy.com:8091/20200112/MIDE-118/1500kb/hls/index.m3u8
+诱惑的姐姐2,https://videomy.yongaomy.com:8091/20200111/MIDE-051/1500kb/hls/index.m3u8
+欲求反对1,https://videomy.yongaomy.com:8091/20200126/MEYD-564/1500kb/hls/index.m3u8
+欲求反对2,https://videomy.yongaomy.com:8091/20200126/MEYD-248/1500kb/hls/index.m3u8
+欲求反对3,https://videomy.yongaomy.com:8091/20200103/ocnUX7Tt/1500kb/hls/index.m3u8
+元气姐姐,https://videomy.yongaomy.com:8091/20200126/IPX-434/1500kb/hls/index.m3u8
+职业OL,https://videomy.yongaomy.com:8091/20191222/WGaysfrW/1500kb/hls/index.m3u8
+制服美少女2,https://videomy.yongaomy.com:8091/20200104/ssClhQbc/1500kb/hls/index.m3u8
+奏音花音,https://videomy.yongaomy.com/20210907/Ekcv3tYC/1500kb/hls/index.m3u8
+AMBI-112奏音花音,https://videomy.yongaomy.com/20211023/MtGqJmJr/1500kb/hls/index.m3u8
+APKH-123奏音花音,https://videomy.yongaomy.com/20210825/d1JxSvZO/1500kb/hls/index.m3u8
+BLK-458奏音花音,https://videomy.yongaomy.com/20211028/aA6JBM10/1500kb/hls/index.m3u8
+cjod-238奏音花音,https://videomy.yongaomy.com/20211007/R4AHRbjR/1500kb/hls/index.m3u8
+DASD-675深田咏美,https://videomy.yongaomy.com/20211028/ebxtDsUR/1500kb/hls/index.m3u8
+hnd-842奏音花音,https://videomy.yongaomy.com/20211009/MZnz3FCC/1500kb/hls/index.m3u8
+KNAM-005奏音花音,https://videomy.yongaomy.com/20211106/5KZCzleX/1500kb/hls/index.m3u8
+MIAA-248奏音花音,https://videomy.yongaomy.com/20210721/6NCwf1nt/1500kb/hls/index.m3u8
+SDMM-064奏音花音,https://videomy.yongaomy.com/20211112/rw3LhAQi/1500kb/hls/index.m3u8
+siro1774奏音花音,https://videomy.yongaomy.com/20210716/1uTF5FjS/1500kb/hls/index.m3u8
+WANZ-957奏音花音,https://videomy.yongaomy.com/20211017/jSi0DQcD/1500kb/hls/index.m3u8
+
 
 乱伦,#genre#
 -腐れ根性叩き直し鬼輪カン！,https://vip2.slbfsl.com/20230308/9SdNAuIk/index.m3u8
